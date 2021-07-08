@@ -1,0 +1,1 @@
+## Esta pagina esta hecha con el fin de evitar que los alumnos escriba el link del aula virtual, pues con esta pagina los alumnos ingresara con solo presionar un boton
